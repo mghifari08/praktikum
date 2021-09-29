@@ -1,1 +1,1 @@
-# praktikum
+# Jurnal 02
